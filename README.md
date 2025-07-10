@@ -11,7 +11,8 @@
 
 ✮ᴛʜɪs ɪs ᴍʏ ᴀᴄᴄᴏᴜɴᴛ     ( > ω • )☆
 
- ![image](https://github.com/user-attachments/assets/9c69d1a8-1640-4438-8e80-ceabda966131)        
+ ![image](https://github.com/user-attachments/assets/65ff675a-274b-4fcb-a651-be4bc73b4755)
+    
  ɴɢườɪ ᴠɪệᴛ ɴè ᴍấʏ ʙồ- ̗̀(⌯ˊᗜˋ⌯) ̖́-
                                                                                                       
  ᴠô đâʏ ᴛᴜɪ ôᴍ ᴛʜᴏảɪ ᴍáɪ
